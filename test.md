@@ -8,3 +8,5 @@ https://forms.office.com/pages/responsepage.aspx?id=Z2uUT2MdSUiV4yEUC523miKJXXX5
 
 ## プロパ
 https://forms.office.com/pages/responsepage.aspx?id=Z2uUT2MdSUiV4yEUC523miKJXXX5aFdAkmm1kWZWwB1UMjVTN0xOVk1aQkJDTTZJOFk3T0dSTFFWWi4u&route=shorturl
+
+https://teams.microsoft.com/l/meetup-join/19%3ameeting_MjY2MzlhNzAtZGFjNi00MzYxLWI2NzUtZTQ2MzkyMWY3YWUy%40thread.v2/0?context=%7b%22Tid%22%3a%224f946b67-1d63-4849-95e3-21140b9db79a%22%2c%22Oid%22%3a%220b775dad-a001-4189-b4d3-51523f352e49%22%7d
